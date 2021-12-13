@@ -1,4 +1,3 @@
-# petrovpetr00.github.io
 <!-- #######  YAY, I AM THE SOURCE EDITOR! #########-->
 <h1 style="color: #5e9ca0;"><span style="color: #333399;">Факты, говорящие в пользу истинности Библии</span></h1>
 <h2 style="color: #2e6c80;"><span style="color: #00ccff;">Считалось, что письменность во времена Моисея не могла существовать:</span></h2>
